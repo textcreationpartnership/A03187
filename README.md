@@ -32,9 +32,11 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
+A new merry Ballad I haue here to shew,Come pence a peece for them, I tell you but so.To an old tuneMY Masters attend,vnto me giue eare:To speake like a friend,I meane not to spare,Great store of abus
+    _ The second part.
 
 #####Back#####
-A New merry ballad I haue here to shew, come pence a peece for them, I tell you but so to an old tun
+London▪ Printed for F. G.
 **Types of content**
 
   * There are 210 **verse** lines!
